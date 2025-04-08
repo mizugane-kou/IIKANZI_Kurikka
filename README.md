@@ -1,0 +1,2 @@
+# IIKANZI_Kurikka
+いいかんじクリッカー
